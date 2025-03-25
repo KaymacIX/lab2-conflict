@@ -1,1 +1,1 @@
-Team lead: Developer B
+Team lead: Kangwa Mbewe (lead), Jacob Moonga (co-lead)
